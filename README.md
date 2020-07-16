@@ -5,4 +5,4 @@ Hello. I'm an Air Force veteran who is excited to make a career change into the 
 
 I enjoy the challenge of crossfit workouts as I work out at least 5 times a week. Some people look at that as torture, I look at it as FUN! :) 
 
-Have a great day!!!
+Have a fantastic day!!!
